@@ -1,4 +1,4 @@
-# ENCODED BY ; TRICKER SEERAT RULEX BRAND 
+# ENCODED BY ; TRICKER SAIM RULEX BRAND
 # Obfuscated with PyObfuscate
 # YOUTUBE ; https://www.youtube.com/@Trick-by-rulex-seerat-brand
 # FACEBOOK ; https://www.facebook.com/rulextrickerseeratbrand
